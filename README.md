@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Charan07x
-- 👀 I’m interested in entrepreneurship and business development
+- 👀 I’m interested in entrepreneurship , fashion designing and AI development
 - 🌱 I’m currently learning c programming
 - 💞️ I’m looking to collaborate on gdsc
 - 📫 if you are looking to contact me plz mail to charanvatsalya007@gmail.com
